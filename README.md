@@ -1,1 +1,1 @@
-# JayGaristrial.github.io
+# JayGaris.github.io
